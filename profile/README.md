@@ -1,4 +1,4 @@
-## Hey! Were Lumina Eclipse
+## Hey! We are Lumina Eclipse
 
 Lumina Eclipse was founded on the Friday 22nd March 2024!
 
